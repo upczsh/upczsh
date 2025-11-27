@@ -14,7 +14,7 @@ Here are some ideas to get you started:
 
 💬 If you have any good ideas, please contact me
 
-⚡ Fun fact: code、摄影、旅行、🎮PUBG/CSGO、美食
+⚡ Fun fact: code、摄影、旅行、🎮、美食
  <!--
  👯 I’m looking to collaborate on ...
  🤔 I’m looking for help with ...
